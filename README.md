@@ -10,7 +10,7 @@
   ༝   ꒰ i am usually really sarcastic and joke most of the time!! dont take what i say seriously pls..
   
     ༝   ꒰ idm any jokes but as long as the jokes arent too far i'll join along ~
-         ༝   ꒰ if you wanna add me on discord ... my discord is ' yumiimia. ' the rest of my socials if you want. i can tell yew, just ask !!
+   ༝   ꒰ if you wanna add me on discord ... my discord is ' yumiimia. ' the rest of my socials if you want. i can tell yew, just ask !!
 
 ༝   ꒰ No copy mi skins pls :( inspo allowed.
 
