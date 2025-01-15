@@ -4,6 +4,7 @@
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎢𓎟𓎟𓎟𓎟𓎟𓎟 
 
  ༝   ꒰ i have alot of names- personally you can just call me yumi or anything you want! i lovee nicknames!
+ 
         ༝   ꒰ mi pronouns r they/them . but idrc if you use other pronouns
 
      ༝   ꒰ Int/cuds with me anytime!! if i dont respond im probably off tab..or just afk waiting to disconnect ~
